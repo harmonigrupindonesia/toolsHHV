@@ -2,7 +2,7 @@
 
 [def]: img/logo.png
 
-[![](https://img.shields.io/badge/Download-Logo-blue.svg)](https://drive.google.com/file/d/18xgbBjofssZaTUr-Mii6XS-bZ6cj6IYQ/view?usp=drive_link)
+[![](https://img.shields.io/badge/Download-Logo-blue.svg)](https://drive.google.com/file/d/1OXtjJNaPGjNL2snWB9MtOt5mJJLwRxYv/view?usp=drive_link)
 
 # Tools Harmoni Horizon Valley
 
