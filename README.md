@@ -35,15 +35,16 @@ Nikmati panorama perbukitan hijau, city light yang memukau di malam hari, dan ud
 - The Pangrango Hill
 
 💎 LEGACY — Investasi Aset Jangka Panjang
-Kavling bukan sekadar tempat tinggal. Ini adalah warisan bernilai untuk keluarga. Tanah terus naik nilainya, dan Harmoni Horizon Valley menawarkan tanah kavling thematic, eksklusif, dan estetis—ideal untuk dibangun, disimpan, atau diwariskan.
+Ini adalah warisan bernilai untuk keluarga. Tanah terus naik nilainya, dan Harmoni Horizon Valley menawarkan tanah kavling thematic, eksklusif, dan  disimpan, atau diwariskan.
 
-🎯 FASILITAS & INFRASTRUKTUR MODERN
+🎯 AREA KOMERSIL & INFRASTRUKTUR
 🌈 Rainbow Slide
 🚧 Gerbang otomatis
 🎠 Playground anak
-🛣 Jalan cor beton
+🛣 Row Jalan Utama 6,5 meter
+🛣 Row Jalan Kavling 5,5 meter
 🕌 Mushola
-🚻 Toilet umum
+🚻 Toilet
 🅿 Area parkir luas
 ⚡ Tiang listrik & PJU
 
