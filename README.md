@@ -12,7 +12,6 @@
 
 ## Product Knowledge
 
-[![](https://img.shields.io/badge/Download-PK-red.svg)](https://drive.google.com/file/d/1VxCc4KW8d2yf-7bdwK4pFVa3xifNyxDh/view?usp=drive_link)
 
 ```sh
 🌿 HARMONI HORIZON VALLEY
